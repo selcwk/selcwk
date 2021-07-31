@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @selcwk
+- 🀄️ I’m interested in coding and like stuff 
+- 🌱 I’m currently learning python 
+- 📫 U can find me on tt @selcwk
